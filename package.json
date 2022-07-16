@@ -13,6 +13,6 @@
   "repository": "https://github.com/nancychann/bo-project-gacor",
   "license": "MIT",
   "engines": {
-    "atom": ">=1.0.0 <2.0.0"
+    "atom": ">=1.1.2 <2.0.0"
   }
 }
