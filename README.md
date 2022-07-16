@@ -1,6 +1,3 @@
-Bo Situs Judi Slot Gacor Terbaru Hari ini Mudah Menang Jackpot Terbesar MantulBRO
-=================================================================================
-
  [>>>DAFTAR SLOT GACOR<<<](https://bit.ly/slot-gacor889)
 ========================================================
 
